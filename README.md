@@ -1,4 +1,4 @@
-Hi 👋 am, I’m @Caspercode54, and am currently learning 
+Hi 👋 am, I’m @Ken i love anything coding, New experiences all around
 
 <!---
 Caspercode54/Caspercode54 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
